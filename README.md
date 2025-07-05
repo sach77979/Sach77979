@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭I am looking for a MERN Stack Developer <br>👬 I'm looking for collaboration with senior <br>software engineer <br>💬ask me about anythings releted my skills.<br>🤝I'm always help my juniors.<br>🔌AI is a friend, not a competitor<br>🪙Moving up the career ladder like a flash
+🔭I am looking for a MERN Stack Developer <br>👬 I want to collaboration with senior <br>software engineer <br>💬ask me about anythings releted my skills.<br>🤝I'm always help my juniors.<br>🔌AI is a friend, not a competitor<br>🪙Moving up the career ladder like a flash
 
 
 ## 🌐 Socials:
